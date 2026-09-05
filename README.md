@@ -1,4 +1,5 @@
-$\color{#A93236}{\text{`` CHECK MY PATREON FOR MORE INFO !}}$
+— Still a WIP !
+$\color{#A93236}{\text{`` CHECK MY PATREON FOR MORE INFO ABOUT ME !}}$
 
 $\color{#F7EECF}{\text{♥}}$ [pt-friendships](https://github.com/pt-friendships), [pt-hall-of-media](https://github.com/pt-hall-of-media) $\color{#F7EECF}{\text{cuties’’}}$
 
