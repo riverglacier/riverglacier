@@ -5,4 +5,4 @@ $\color{#F7EECF}{\text{·｡･ﾟ･ ๋ ࣭ ⭑}}$ $\color{#E3B793}{\text{𓂃
 $\color{#F7EECF}{\text{“ 𝑯𝒆 𝒊𝒔}}$ $\color{#E3B793}{\text{𝒉𝒂𝒍𝒇}}$ $\color{#D16664}{\text{𝒐𝒇 𝒎𝒚}}$ $\color{#A93236}{\text{𝒔𝒐𝒖𝒍,}}$ $\color{#F7EECF}{\text{𝒂𝒔 𝒕𝒉𝒆}}$ $\color{#E3B793}{\text{𝒑𝒐𝒆𝒕𝒔 𝒔𝒂𝒚.}}$
   $\color{#D16664}{\text{𝑯𝒆 𝒘𝒊𝒍𝒍 𝒃𝒆}}$ $\color{#A93236}{\text{𝒅𝒆𝒂𝒅 𝒔𝒐𝒐𝒏,}}$ $\color{#F7EECF}{\text{𝒂𝒏𝒅 𝒉𝒊𝒔}}$ $\color{#E3B793}{\text{𝒉𝒐𝒏𝒐𝒓}}$ $\color{#D16664}{\text{𝒊𝒔 𝒂𝒍𝒍 𝒕𝒉𝒂𝒕}}$ $\color{#A93236}{\text{𝒘𝒊𝒍𝒍 𝒓𝒆𝒎𝒂𝒊𝒏. ”}}$
 
-  $\color{#A93236}{\text{``🦴;@piercingveil}}$ $\color{#D16664}{\text{My pet dog btw ! !}}$
+  $\color{#A93236}{\text{``🦴; @piercingveil}}$ $\color{#D16664}{\text{My pet dog btw ! !}}$ $\color{#F7EECF}{\text{૮֊˕֊ა੭}}$
