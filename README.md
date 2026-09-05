@@ -1,4 +1,7 @@
+![image alt](https://github.com/riverglacier/riverglacier/blob/6274df9c354966391317b90393d796c1d5a5af3c/Untitled96_20260905175652_1.png)
+
 — Still a WIP !
+
 $\color{#A93236}{\text{`` CHECK MY PATREON FOR MORE INFO ABOUT ME !}}$
 
 $\color{#F7EECF}{\text{♥}}$ [pt-friendships](https://github.com/pt-friendships), [pt-hall-of-media](https://github.com/pt-hall-of-media) $\color{#F7EECF}{\text{cuties’’}}$
