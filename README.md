@@ -1,5 +1,4 @@
-Attach the image: https://cdn.phototourl.com/member/2026-09-05-b05a1047-9e96-4e7a-889c-1c4ada894580.png
-
+<!-- Uploading "Untitled96_20260905160423.png"... -->
 <!--
 **riverglacier/riverglacier** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
