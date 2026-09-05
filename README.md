@@ -1,6 +1,6 @@
 $\color{#A93236}{\text{`` CHECK MY PATREON FOR MORE INFO !}}$
 
-$\color{#F7EECF}{\text{♥ pt-friendships, pt-hall-of-media cuties’’}}$
+$\color{#F7EECF}{\text{♥ https://github.com/pt-friendships, pt-hall-of-media cuties’’}}$
 
 ![image alt](https://github.com/riverglacier/riverglacier/blob/171abf003fae8a5b3e323ed7ee7d2395a8c6a823/Untitled96_20260905175636_1.png)
 
