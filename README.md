@@ -16,22 +16,3 @@ $\color{#F7EECF}{\text{“ 𝑯𝒆 𝒊𝒔}}$ $\color{#E3B793}{\text{𝒉𝒂�
   $\color{#A93236}{\text{`` 🦴;}}$ [piercingveil](https://github.com/piercingveil) $\color{#D16664}{\text{My pet dog btw ! !}}$ $\color{#F7EECF}{\text{૮֊˕֊ა੭}}$
 
 ![image alt](https://github.com/riverglacier/riverglacier/blob/c1688f5a6294bb368f51febd0f6a91cc3cb1c13b/Untitled96_20260905175712_1.png)
-
-
-
-<style>
-  .typing {
-    width: 30ch;
-    animation: typing 3.5s steps(40, end);
-    white-space: nowrap;
-    overflow: hidden;
-    border-right: 3px solid black;
-  }
-
-  @keyframes typing {
-    from { width: 0; }
-    to { width: 30ch; }
-  }
-</style>
-
-<p class="typing">Hello, this is a typing animation!</p>
