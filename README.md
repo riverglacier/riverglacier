@@ -8,6 +8,8 @@ $\color{#A93236}{\text{`` CHECK MY PATREON FOR MORE INFO ABOUT ME !}}$
 
 $\color{#F7EECF}{\text{♥}}$ [pt-friendships](https://github.com/pt-friendships), [pt-hall-of-media](https://github.com/pt-hall-of-media) $\color{#F7EECF}{\text{cuties’’}}$
 
+$\color{#F7EECF}{\text{·｡･ﾟ･ ๋ ࣭ ⭑}}$ $\color{#E3B793}{\text{𓂃 ࣪˖ ִֶָ 𓈈 🍫}}$ $\color{#E3B793}{\text{ 𓈈 ִֶ ࣪˖ 𓂃}}$ $\color{#F7EECF}{\text{⭑ ࣭  ๋ ･ﾟ･｡·}}$
+
 ![image alt](https://github.com/riverglacier/riverglacier/blob/171abf003fae8a5b3e323ed7ee7d2395a8c6a823/Untitled96_20260905175636_1.png)
 
 $\color{#F7EECF}{\text{·｡･ﾟ･ ๋ ࣭ ⭑}}$ $\color{#E3B793}{\text{𓂃 ࣪˖ ִֶָ 𓈈 🍫}}$ $\color{#E3B793}{\text{ 𓈈 ִֶ ࣪˖ 𓂃}}$ $\color{#F7EECF}{\text{⭑ ࣭  ๋ ･ﾟ･｡·}}$
