@@ -4,3 +4,5 @@
     Name one hero who was happy. 
   </div>
 </div>
+.wrapper { display: grid; place-items: center; }
+.typing-demo { animation: typing 3s steps(22), blink 0.5s step-end infinite alternate; }
