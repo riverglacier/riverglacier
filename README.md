@@ -34,4 +34,4 @@ $\color{#F7EECF}{\text{“ 𝑯𝒆 𝒊𝒔}}$ $\color{#E3B793}{\text{𝒉𝒂�
   }
 </style>
 
-<p class="typing">Hello, this is a typing animation!</p>
+<p class="typing">Name one hero who was happy.</p>
