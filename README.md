@@ -6,3 +6,5 @@ $\color{#F7EECF}{\text{“ 𝑯𝒆 𝒊𝒔}}$ $\color{#E3B793}{\text{𝒉𝒂�
   $\color{#D16664}{\text{𝑯𝒆 𝒘𝒊𝒍𝒍 𝒃𝒆}}$ $\color{#A93236}{\text{𝒅𝒆𝒂𝒅 𝒔𝒐𝒐𝒏,}}$ $\color{#F7EECF}{\text{𝒂𝒏𝒅 𝒉𝒊𝒔}}$ $\color{#E3B793}{\text{𝒉𝒐𝒏𝒐𝒓}}$ $\color{#D16664}{\text{𝒊𝒔 𝒂𝒍𝒍 𝒕𝒉𝒂𝒕}}$ $\color{#A93236}{\text{𝒘𝒊𝒍𝒍 𝒓𝒆𝒎𝒂𝒊𝒏. ”}}$
 
   $\color{#A93236}{\text{``🦴; @piercingveil}}$ $\color{#D16664}{\text{My pet dog btw ! !}}$ $\color{#F7EECF}{\text{૮֊˕֊ა੭}}$
+
+![image alt](https://github.com/riverglacier/riverglacier/blob/c1688f5a6294bb368f51febd0f6a91cc3cb1c13b/Untitled96_20260905175712_1.png)
