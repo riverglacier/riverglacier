@@ -1,7 +1,10 @@
+<div align="center">
+  
 ![image alt](https://github.com/riverglacier/riverglacier/blob/6274df9c354966391317b90393d796c1d5a5af3c/Untitled96_20260905175652_1.png)
 
 $\color{#F7EECF}{\text{*ੈ }}$ $\color{#E3B793}{\text{✩‧₊˚ }}$ $\color{#D16664}{\text{༺ }}$ $\color{#A93236}{\text{☆ }}$ $\color{#D16664}{\text{༻ }}$ $\color{#E3B793}{\text{*ੈ }}$ $\color{#F7EECF}{\text{✩‧₊˚}}$
 
+<div align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+code&weight=500&pause=1000&color=A93236&center=true&vCenter=true&width=600&lines=%22Name+one+hero+who+was+happy.%22+%E2%80%94+%22You+can't.%22;He+was+sitting+up+now%2C+leaning+forward.+%22I+can't%22+;%22I+know%2C+they+never+let+you+be+famous+and+happy.%22;He+lifted+his+eyebrows.+%22I'll+tell+you+a+secret.%22;%22Tell+me.%22+I+loved+it+when+he+was+like+this.;%22I'm+going+to+be+the+first.%22+;He+took+my+palm+and+held+it+to+his.+%22Swear+it.%22;%22Why+me%3F%22+%E2%80%94+%22Because+you're+the+reason.+Swear+it.%22;%22I+swear+it%2C%22;I+said%2C+lost+in+the+high+color+of+his+cheeks%2C+;the+flame+in+his+eyes.;%22I+swear+it...%22;%E2%80%94+The+Song+Of+Achilles" alt="Typing SVG" /></a>
 
 — Still a WIP !
