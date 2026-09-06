@@ -9,7 +9,9 @@ $\color{#A93236}{\text{·｡ ･ﾟ ･ ๋ ࣭ ⭑  }}$ $\color{#D16664}{\text{
 
 — Still a WIP !
 
-$\color{#D16664}{\text{`'ᶜʰᵉᶜᵏ ᴹʸ }}$ $\color{#D16664}{\text{ ᶠᵒʳ ᴹᵒʳᵉ ᴵⁿᶠᵒˢ ᴬᵇᵒᵘᵗ ᴹᵉ}}$
+$\color{#D16664}{\text{` ' ᶜʰᵉᶜᵏ }}$ <a href="https://patreon.com/lenonx">
+  <img src="https://github.com/riverglacier/riverglacier/blob/a5b72c96974cb067c8a8e6ceac8783ccf4803031/Tumblr_l_24858862929557.gif" alt="Alt text">
+</a> $\color{#D16664}{\text{ ᶠᵒʳ ᴹᵒʳᵉ ᴵⁿᶠᵒˢ ᴬᵇᵒᵘᵗ ᴹᵉ}}$
 
 <details>
   <summary>$\color{#F7EECF}{\text{𓂃  ࣪˖♥ `' ᴸᵒᵛᵉˡʸＣｕｔｉｅｓ! (˵◝ ⩊  ◜˵マ *ੈ ˚ ｡⋆ }}$</summary>
@@ -26,7 +28,7 @@ $\color{#F7EECF}{\text{·｡ ･ﾟ ･ ๋ ࣭ ⭑}}$ $\color{#E3B793}{\text{�
 $\color{#F7EECF}{\text{“ 𝑯𝒆 𝒊𝒔}}$ $\color{#E3B793}{\text{𝒉𝒂𝒍𝒇}}$ $\color{#D16664}{\text{𝒐𝒇 𝒎𝒚}}$ $\color{#A93236}{\text{𝒔𝒐𝒖𝒍,}}$ $\color{#F7EECF}{\text{𝒂𝒔 𝒕𝒉𝒆}}$ $\color{#E3B793}{\text{𝒑𝒐𝒆𝒕𝒔 𝒔𝒂𝒚.}}$
   $\color{#D16664}{\text{𝑯𝒆 𝒘𝒊𝒍𝒍 𝒃𝒆}}$ $\color{#A93236}{\text{𝒅𝒆𝒂𝒅 𝒔𝒐𝒐𝒏,}}$ $\color{#F7EECF}{\text{𝒂𝒏𝒅 𝒉𝒊𝒔}}$ $\color{#E3B793}{\text{𝒉𝒐𝒏𝒐𝒓}}$ $\color{#D16664}{\text{𝒊𝒔 𝒂𝒍𝒍 𝒕𝒉𝒂𝒕}}$ $\color{#A93236}{\text{𝒘𝒊𝒍𝒍 𝒓𝒆𝒎𝒂𝒊𝒏. ”}}$
 
-  $\color{#A93236}{\text{`` 🦴;}}$ [piercingveil](https://github.com/piercingveil) $\color{#D16664}{\text{My pet dog btw ! !}}$ $\color{#F7EECF}{\text{૮֊˕֊ა੭}}$
+  $\color{#A93236}{\text{`` 🦴;}}$ [zucchiniii](https://github.com/piercingveil) $\color{#D16664}{\text{My pet dog btw ! !}}$ $\color{#F7EECF}{\text{૮֊˕֊ა੭}}$
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=A93236&center=true&vCenter=true&width=475&lines=%22Do+you+believe+in+love+at+first+sight%3F%22;%22Do+you+believe+in+fate%3F%22;%22I+believe+in+good+things.%22;%22Only+come+to+those+who+wait.%22" alt="Typing SVG" /></a>
 
