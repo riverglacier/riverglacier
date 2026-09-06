@@ -12,9 +12,9 @@ $\color{#A93236}{\text{·｡ ･ﾟ ･ ๋ ࣭ ⭑  }}$ $\color{#D16664}{\text{
 $\color{#D16664}{\text{`` CHECK MY PATREON FOR MORE INFO ABOUT ME !}}$
 
 <details>
-  <summary>$\color{#F7EECF}{\text{♥}}$ $\color{#F7EECF}{\text{cuties’’}}$</summary>
+  <summary>$\color{#F7EECF}{\text{𓂃  ࣪˖♥ `' ᴸᵒᵛᵉˡʸＣｕｔｉｅｓ! (˵◝ ⩊  ◜˵マ *ੈ ˚ ｡⋆ }}$</summary>
   
-[pt-friendships](https://github.com/pt-friendships), [pt-hall-of-media](https://github.com/pt-hall-of-media) $\color{#F7EECF}{\text{cuties’’}}$
+[pt-friendships](https://github.com/pt-friendships), [pt-hall-of-media](https://github.com/pt-hall-of-media)
 </details>
 
 $\color{#F7EECF}{\text{·｡･ﾟ･ ๋ ࣭ ⭑}}$ $\color{#E3B793}{\text{𓂃 ࣪˖ ִֶָ 𓈈 }}$ ![image alt](https://github.com/riverglacier/riverglacier/blob/294ac5e60c7ea7f1ee404522a61a7d4a2d0d96fa/Tumblr_l_31451178607027.gif) $\color{#E3B793}{\text{ 𓈈 ִֶ ࣪˖ 𓂃}}$ $\color{#F7EECF}{\text{⭑ ࣭  ๋ ･ﾟ･｡·}}$
