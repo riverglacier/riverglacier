@@ -9,7 +9,9 @@ $\color{#A93236}{\text{·｡ ･ﾟ ･ ๋ ࣭ ⭑  }}$ $\color{#D16664}{\text{
 
 $\color{#D16664}{\text{` ' ᶜʰᵉᶜᵏ }}$ <a href="https://patreon.com/lenonx">
   <img src="https://github.com/riverglacier/riverglacier/blob/a5b72c96974cb067c8a8e6ceac8783ccf4803031/Tumblr_l_24858862929557.gif" alt="Alt text">
-</a> $\color{#D16664}{\text{ ᶠᵒʳ ᴹᵒʳᵉ ᴵⁿᶠᵒˢ ᴬᵇᵒᵘᵗ ᴹᵉ}}$ $\color{#E3B793}{\text{AND ˢⁱᵍⁿ}}$ [ᵃᵗᵃ](https://yellomade.atabook.org/) $\color{#E3B793}{\text{ᴵᶠ ʸᵒᵘ ᵂᵃⁿⁿᵃ ᴮᵉ}}$<details><summary>$\color{#E3B793}{\text{ᶠʳⁱᵉⁿᵈˢ 𓂃 .ᐟ}}$</summary>$\color{#E3B793}{\text{Ｉ ｄｏｎ'ｔ ｂｉｔｅ ദ്ദി(๑ᵔ⤙ᵔ๑) }}$</details> 
+</a> $\color{#D16664}{\text{ ᶠᵒʳ ᴹᵒʳᵉ ᴵⁿᶠᵒˢ ᴬᵇᵒᵘᵗ ᴹᵉ}}$ $\color{#E3B793}{\text{AND ˢⁱᵍⁿ }}$ <a href="https://yellomade.atabook.org/">
+  <img src="https://github.com/riverglacier/riverglacier/blob/3184dc78844dec8e40c207699a31ef54384f7496/Tumblr_l_31454228215258.gif" alt="Alt text">
+</a> $\color{#E3B793}{\text{ ᴵᶠ ʸᵒᵘ ᵂᵃⁿⁿᵃ ᴮᵉ}}$<details><summary>$\color{#E3B793}{\text{ᶠʳⁱᵉⁿᵈˢ 𓂃 .ᐟ}}$</summary>$\color{#E3B793}{\text{Ｉ ｄｏｎ'ｔ ｂｉｔｅ ദ്ദി(๑ᵔ⤙ᵔ๑) }}$</details> 
 
 <details>
   <summary>$\color{#F7EECF}{\text{𓂃   ࣪˖♥  `'  ᴸᵒᵛᵉˡʸ  Ｃｕｔｉｅｓ!    (˵◝ ⩊  ◜˵マ }}$</summary>
