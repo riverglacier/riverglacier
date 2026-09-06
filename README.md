@@ -12,7 +12,7 @@ $\color{#D16664}{\text{` ' ᶜʰᵉᶜᵏ }}$ <a href="https://patreon.com/lenon
 </a> $\color{#D16664}{\text{ ᶠᵒʳ ᴹᵒʳᵉ ᴵⁿᶠᵒˢ ᴬᵇᵒᵘᵗ ᴹᵉ}}$ $\color{#E3B793}{\text{AND ˢⁱᵍⁿ}}$ [ᵃᵗᵃ](https://yellomade.atabook.org/) $\color{#E3B793}{\text{ᴵᶠ ʸᵒᵘ ᵂᵃⁿⁿᵃ ᴮᵉ}}$<details><summary>$\color{#E3B793}{\text{ᶠʳⁱᵉⁿᵈˢ 𓂃 .ᐟ}}$</summary>$\color{#E3B793}{\text{Ｉ ｄｏｎ'ｔ ｂｉｔｅ ദ്ദി(๑ᵔ⤙ᵔ๑) }}$</details> 
 
 <details>
-  <summary>$\color{#F7EECF}{\text{𓂃  ࣪˖♥ `' ᴸᵒᵛᵉˡʸＣｕｔｉｅｓ! (˵◝ ⩊  ◜˵マ *ੈ ˚ ｡⋆ }}$</summary>
+  <summary>$\color{#F7EECF}{\text{𓂃   ࣪˖♥  `'  ᴸᵒᵛᵉˡʸ  Ｃｕｔｉｅｓ!    (˵◝ ⩊  ◜˵マ }}$</summary>
   
 [pt-friendships](https://github.com/pt-friendships), [pt-hall-of-media](https://github.com/pt-hall-of-media)
 </details>
