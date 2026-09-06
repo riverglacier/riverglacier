@@ -9,7 +9,7 @@ $\color{#A93236}{\text{·｡ ･ﾟ ･ ๋ ࣭ ⭑  }}$ $\color{#D16664}{\text{
 
 $\color{#D16664}{\text{` ' ᶜʰᵉᶜᵏ }}$ <a href="https://patreon.com/lenonx">
   <img src="https://github.com/riverglacier/riverglacier/blob/a5b72c96974cb067c8a8e6ceac8783ccf4803031/Tumblr_l_24858862929557.gif" alt="Alt text">
-</a> $\color{#D16664}{\text{ ᶠᵒʳ ᴹᵒʳᵉ ᴵⁿᶠᵒˢ ᴬᵇᵒᵘᵗ ᴹᵉ}}$ AND 
+</a> $\color{#D16664}{\text{ ᶠᵒʳ ᴹᵒʳᵉ ᴵⁿᶠᵒˢ ᴬᵇᵒᵘᵗ ᴹᵉ}}$ $\color{#E3B793}{\text{AND ˢⁱᵍⁿ}}$ [ᵃᵗᵃ](https://yellomade.atabook.org/) $\color{#E3B793}{\text{ᴵᶠ ʸᵒᵘ ᵂᵃⁿⁿᵃ ᴮᵉ ᶠʳⁱᵉⁿᵈˢ 𓂃 .ᐟ}}$
 
 <details>
   <summary>$\color{#F7EECF}{\text{𓂃  ࣪˖♥ `' ᴸᵒᵛᵉˡʸＣｕｔｉｅｓ! (˵◝ ⩊  ◜˵マ *ੈ ˚ ｡⋆ }}$</summary>
