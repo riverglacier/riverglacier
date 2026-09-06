@@ -9,7 +9,7 @@ $\color{#A93236}{\text{·｡ ･ﾟ ･ ๋ ࣭ ⭑  }}$ $\color{#D16664}{\text{
 
 — Still a WIP !
 
-$\color{#D16664}{\text{`` CHECK MY PATREON FOR MORE INFO ABOUT ME !}}$
+$\color{#D16664}{\text{`'ᶜʰᵉᶜᵏ ᴹʸ }}$ $\color{#D16664}{\text{ ᶠᵒʳ ᴹᵒʳᵉ ᴵⁿᶠᵒˢ ᴬᵇᵒᵘᵗ ᴹᵉ}}$
 
 <details>
   <summary>$\color{#F7EECF}{\text{𓂃  ࣪˖♥ `' ᴸᵒᵛᵉˡʸＣｕｔｉｅｓ! (˵◝ ⩊  ◜˵マ *ੈ ˚ ｡⋆ }}$</summary>
