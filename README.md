@@ -34,7 +34,7 @@ $\color{#A93236}{\text{·｡ ･ﾟ ･ ๋ ࣭ ⭑  }}$ $\color{#D16664}{\text{
 
 ![image alt](https://github.com/riverglacier/riverglacier/blob/c1688f5a6294bb368f51febd0f6a91cc3cb1c13b/Untitled96_20260905175712_1.png)
 
-$\color{#A93236}{\text{⋆｡𖦹 °⭒ ˚｡⋆ ⋆｡ 𖦹°⭒ ˚｡ ⋆}}$ $\color{#A93236}{\text{⋆｡𖦹 °⭒ ˚｡⋆ ⋆｡ 𖦹°⭒ ˚｡ ⋆}}$
+$\color{#A93236}{\text{⋆ ｡ 𖦹  ° ⭒  ˚ ｡ ⋆  ⋆ ｡  𖦹 ° ⭒  ˚ ｡  ⋆  }}$ ![image alt](https://github.com/riverglacier/riverglacier/blob/41f1c34546f245a8f9687b20ec01a6f2fda4d521/Tumblr_l_24857772359634.gif) $\color{#A93236}{\text{  ⋆ ｡ 𖦹  ° ⭒  ˚ ｡ ⋆  ⋆ ｡  𖦹 ° ⭒  ˚ ｡  ⋆}}$
 
 $\color{#A93236}{\text{༺  ๋ ･ﾟ ･ ｡}}$ <img src="https://github.com/riverglacier/riverglacier/blob/f0102e9a0e2a8dd91b96c1a1b0a7cece1c4a31d5/Untitled95_20260908160716_1.png" width="125" height="175" alt="description"> $\color{#D16664}{\text{⋆ ｡𖦹 °⭒}}$ <img src="https://github.com/riverglacier/riverglacier/blob/9f858eb717a1a0845645ad16288d38520f79241d/Untitled95_20260908154510_1.png" width="250" height="150" alt="description"> $\color{#D16664}{\text{⋆ ｡ 𖦹°⭒}}$ <img src="https://github.com/riverglacier/riverglacier/blob/d501455cc1908a934419b8307193035d9ffb70b9/Untitled95_20260908162515_1.png" width="100" height="145" alt="description"> $\color{#A93236}{\text{  ๋ ･ﾟ ･ ｡ ༻}}$
 
