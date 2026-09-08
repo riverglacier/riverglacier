@@ -36,6 +36,6 @@ $\color{#A93236}{\text{·｡ ･ﾟ ･ ๋ ࣭ ⭑  }}$ $\color{#D16664}{\text{
 
 $\color{#A93236}{\text{⋆｡𖦹 °⭒ ˚｡⋆ ⋆｡ 𖦹°⭒ ˚｡ ⋆}}$ $\color{#A93236}{\text{⋆｡𖦹 °⭒ ˚｡⋆ ⋆｡ 𖦹°⭒ ˚｡ ⋆}}$
 
-<img src="https://github.com/riverglacier/riverglacier/blob/9f858eb717a1a0845645ad16288d38520f79241d/Untitled95_20260908154510_1.png" width="250" height="150" alt="description">
+<img src="https://github.com/riverglacier/riverglacier/blob/f0102e9a0e2a8dd91b96c1a1b0a7cece1c4a31d5/Untitled95_20260908160716_1.png" width="150" height="200" alt="description">  <img src="https://github.com/riverglacier/riverglacier/blob/9f858eb717a1a0845645ad16288d38520f79241d/Untitled95_20260908154510_1.png" width="250" height="150" alt="description">
 
 ![image alt](https://github.com/riverglacier/riverglacier/blob/4bf1b58241ff4c6393c32fe4ef3733bbb37341f3/Untitled96_20260908145105_1.png)
