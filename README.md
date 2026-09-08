@@ -21,7 +21,6 @@ $\color{#D16664}{\text{` ' ᶜʰᵉᶜᵏ }}$ <a href="https://patreon.com/lenon
 
 $\color{#F7EECF}{\text{༺ ·｡ ･ﾟ ･ ๋ ࣭ ⭑}}$ $\color{#E3B793}{\text{𓂃  ࣪˖  ִֶָ 𓈈 }}$ $\color{#D16664}{\text{·｡ ･ﾟ ･ ๋ ࣭ ⭑}}$ $\color{#A93236}{\text{𓂃  ࣪˖  ִֶָ 𓈈 }}$ ![image alt](https://github.com/riverglacier/riverglacier/blob/294ac5e60c7ea7f1ee404522a61a7d4a2d0d96fa/Tumblr_l_31451178607027.gif) $\color{#A93236}{\text{𓂃  ࣪˖  ִֶָ 𓈈 }}$ $\color{#D16664}{\text{⭑ ࣭  ๋ ･ﾟ ･｡ ·}}$ $\color{#E3B793}{\text{ 𓈈 ִֶ  ࣪˖  𓂃}}$ $\color{#F7EECF}{\text{⭑ ࣭  ๋ ･ﾟ ･｡ · ༻}}$
 ![image alt](https://github.com/riverglacier/riverglacier/blob/171abf003fae8a5b3e323ed7ee7d2395a8c6a823/Untitled96_20260905175636_1.png)
-
 $\color{#F7EECF}{\text{༺ ·｡ ･ﾟ ･ ๋ ࣭ ⭑}}$ $\color{#E3B793}{\text{𓂃  ࣪˖  ִֶָ 𓈈 }}$ $\color{#D16664}{\text{·｡ ･ﾟ ･ ๋ ࣭ ⭑}}$ $\color{#A93236}{\text{𓂃  ࣪˖  ִֶָ 𓈈 }}$ ![image alt](https://github.com/riverglacier/riverglacier/blob/294ac5e60c7ea7f1ee404522a61a7d4a2d0d96fa/Tumblr_l_31451178607027.gif) $\color{#A93236}{\text{𓂃  ࣪˖  ִֶָ 𓈈 }}$ $\color{#D16664}{\text{⭑ ࣭  ๋ ･ﾟ ･｡ ·}}$ $\color{#E3B793}{\text{ 𓈈 ִֶ  ࣪˖  𓂃}}$ $\color{#F7EECF}{\text{⭑ ࣭  ๋ ･ﾟ ･｡ · ༻}}$
 
 $\color{#F7EECF}{\text{“ 𝑯𝒆 𝒊𝒔}}$ $\color{#E3B793}{\text{𝒉𝒂𝒍𝒇}}$ $\color{#D16664}{\text{𝒐𝒇 𝒎𝒚}}$ $\color{#A93236}{\text{𝒔𝒐𝒖𝒍,}}$ $\color{#F7EECF}{\text{𝒂𝒔 𝒕𝒉𝒆}}$ $\color{#E3B793}{\text{𝒑𝒐𝒆𝒕𝒔 𝒔𝒂𝒚.}}$
@@ -33,10 +32,10 @@ $\color{#F7EECF}{\text{“ 𝑯𝒆 𝒊𝒔}}$ $\color{#E3B793}{\text{𝒉𝒂�
 
 $\color{#A93236}{\text{·｡ ･ﾟ ･ ๋ ࣭ ⭑  }}$ $\color{#D16664}{\text{༺  }}$ $\color{#E3B793}{\text{✩‧₊˚   }}$ $\color{#F7EECF}{\text{*ੈ   }}$ $\color{#E3B793}{\text{✩‧₊˚   }}$ $\color{#D16664}{\text{༺  }}$ $\color{#A93236}{\text{☆  }}$ $\color{#D16664}{\text{༻   }}$ $\color{#E3B793}{\text{*ੈ   }}$ $\color{#F7EECF}{\text{✩‧₊˚   }}$ $\color{#E3B793}{\text{*ੈ   }}$ $\color{#D16664}{\text{༻   }}$ $\color{#A93236}{\text{⭑ ࣭  ๋ ･ﾟ ･｡·}}$
 
-
-
 ![image alt](https://github.com/riverglacier/riverglacier/blob/c1688f5a6294bb368f51febd0f6a91cc3cb1c13b/Untitled96_20260905175712_1.png)
 
 $\color{#A93236}{\text{⋆｡𖦹 °⭒ ˚｡⋆ ⋆｡ 𖦹°⭒ ˚｡ ⋆}}$ $\color{#A93236}{\text{⋆｡𖦹 °⭒ ˚｡⋆ ⋆｡ 𖦹°⭒ ˚｡ ⋆}}$
+
+<img src="https://github.com/riverglacier/riverglacier/blob/9f858eb717a1a0845645ad16288d38520f79241d/Untitled95_20260908154510_1.png" width="250" height="150" alt="description">
 
 ![image alt](https://github.com/riverglacier/riverglacier/blob/4bf1b58241ff4c6393c32fe4ef3733bbb37341f3/Untitled96_20260908145105_1.png)
